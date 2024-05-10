@@ -1,4 +1,4 @@
-> Marcial D�az Flores
+> MARCIAL DIAZ
 > 10-03-2021
 > INACAP
 
